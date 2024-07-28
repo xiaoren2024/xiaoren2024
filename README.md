@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there やあ 👋
 Knowledge belongs to all mankind
 
 知識は全人類のものです
