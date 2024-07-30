@@ -5,7 +5,7 @@ Knowledge belongs to all mankind
 
 지식은 모든 인류의 것이다
 
-知识属于全人类
+知識屬於全人類
 
 - xiaoren2024@proton.me
 
